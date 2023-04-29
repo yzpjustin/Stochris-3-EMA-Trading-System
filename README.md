@@ -1,0 +1,1 @@
+# Stochris-3-EMA-Trading-Systme
